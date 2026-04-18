@@ -2,7 +2,7 @@
 
 Complete guide to low light indoor plants, care tips, and best plants for beginners.
 
-👉 https://lowlightleaf.com/
+👉 [Explore Low Light Indoor Plants Guide](https://lowlightleaf.com/)
 
 ## Best Plants for Low Light
 - Snake Plant
